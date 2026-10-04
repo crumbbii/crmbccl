@@ -26,7 +26,7 @@
      <br>
       <br>
       <div align="center">‎     $\text{\color{#E8F7F3}  (ु 𓈒⋅  ⋅𓈒)}$
-       $\text{\color{#DAE6ED} crumb}$ $\text{\color{#DAE6ED} ⠀݂⠀⠀ㅤ۫}$ $\text{\color{DAE6ED} 𝟙6}$
+       $\text{\color{#DAE6ED} crumb}$ $\text{\color{#DAE6ED} ⠀݂⠀⠀ㅤ۫}$ $\text{\color{DAE6ED} 17}$
 <br>
 $\text{\color{#B9CCDB} she}$ $\text{\color{#B9CCDB}⠀⠀𝄞。　 }$ $\text{\color{#B9CCDB} they}$ $\text{\color{#B9CCDB} pref}$ 
                     <br>
